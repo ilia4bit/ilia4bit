@@ -19,5 +19,5 @@ My journey started when I was 17 years old. At first, I went to a boot camp. the
 - Naruto🍃, Jujutsu Kaisen 👿, Fire Force 🧑‍🚒🔥, I Want To Eat Your Pancreas 🥩, Wolf Children :wolf:, Josee The Tiger And The Fish 🐯🐟, are my favorite animes.
 - I'm a pixel art fan.
 ---
-## It's Good to Mention
-**I don't create cool things that make me unique or famous, but it doesn't matter, I'd like to use this tribune and thank my mother and father(Saeede And Ali Reza):heart:. who supported and encouraged me to learn to program. (If you think this is unprofessional, there is no problem, go and check other profiles:smile:)**
+## I'd Like To Mention
+**I don't create cool things that make me unique or famous, but it doesn't matter, I'd like to use this tribune and thank my mother and father(Saeede And Ali Reza):heart:. who supported and encouraged me to learn to program.
